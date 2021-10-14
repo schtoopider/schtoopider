@@ -1,7 +1,8 @@
-- 👋 Hi, I’m @schtoopider
-- 👀 I’m interested in women
-- 🌱 I’m currently learning women
-- 💞️ I’m looking to collaborate on women
-- 📫 How to reach me women
+- 👋 Hi, I’m lasagn
+- 👀 I’m interested in lase
+- 🌱 I’m currently learning lasgna
+- 💞️ I’m looking to collaborate on lasagn
+- 📫 How to reach me lasn
 
 i like lasgn
+i have stroke
